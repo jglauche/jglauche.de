@@ -28,7 +28,7 @@ With depression I am always asking - what can I do? What can I do!? I can do *so
 
 **Do wonderful stuff. Encourage people. Be excellent to people. Document. Teach.**
 
-I had been hiding for so many years behind my computer. I've been taking huge steps this year and I'll continue to do so.
+I have been hiding for so many years behind my computer. I've been taking huge steps this year and I'll continue to do so, with pride and courage.
 
 
 [CCCamp]: https://events.ccc.de/camp/2015/wiki/Main_Page
