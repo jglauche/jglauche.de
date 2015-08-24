@@ -17,8 +17,5 @@ Der Hebelmechanismus klemmt und er bleibt in dieser Position stecken. Während d
 
 Leider verwendet dieser Toaster dreieckige Schrauben - für die habe ich leider kein Werkzeug. Kann das Gerät also nicht weiter auseinandernehmen.
 
-### Suche: Toaster
-
-Hat jemand noch einen Toaster über? Ich muss seit März ohne Einkommen auskommen - deshalb wäre ich über Sachspenden oder einen Tausch gegen eingekochte Lebensmittel oder Kosmetika sehr dankbar!
 
 
