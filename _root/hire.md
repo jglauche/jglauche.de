@@ -55,6 +55,12 @@ If you are looking for someone who is *more than just an engineer*, someone who 
 
 I prefer Open Source / Open Hardware work to closed work and will bill accordingly. 
 
+## References
+
+[My Github]{:target="_blank"}
+
+[My Github]: https://github.com/Joaz/
+
 ## Contact me
 
 E-Mail: webmaster @ joaz . de
