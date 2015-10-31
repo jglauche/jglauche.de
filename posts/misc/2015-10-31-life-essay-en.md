@@ -62,6 +62,6 @@ I'll live. The way they "treat" transwomen here made me ill. Ill in such a way, 
 
 
 [Lorazepam]: https://en.wikipedia.org/wiki/Lorazepam
-[Dieser Blogtext ist auch in Deutsch verfügbar]: posts/misc/2015-10-31-life-essay
+[Dieser Blogtext ist auch in Deutsch verfügbar]: /posts/misc/2015-10-31-life-essay
 
 
