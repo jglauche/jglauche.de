@@ -35,7 +35,7 @@ I am not religious. But if there was a hell, the people there wouldn't be tortur
 
 I did have experiences with depression before. But I never got to an unstable state like the writing the essay put me in. Never before.
 
-My summery about the last 4 weeks:
+My summary about the last 4 weeks:
 
 * I did cry almost every day, sometimes multiple hours a day
 * I had problems sleeping without sleep medication
@@ -43,12 +43,12 @@ My summery about the last 4 weeks:
 * I did lose appetite completely on 3 days 
 * I had 3 anxiety attacks that were so bad that I had to take [Lorazepam]
 * I had suicidal thoughts 4 times
-* I had the carving for self-harm twice
+* I had the craving for self-harm twice
 * I was really close for going to a mental clinic voluntarily, twice.
 
 Before writing the essay I was in a relatively good state. Well I had my ups and downs. But I was stable over month. I never had suicidal thoughts again since shortly after my outing. I am happy that I have a high sense of self-preservation. On suicidal thoughts, I switch off completely. This keeps me from doing anythign stupid. 
 
-I never had the carving for self-harm in my life. Until now. I didn't do it because my consciousness did veto the action. Again: self-preservation.
+I never had the craving for self-harm in my life. Until now. I didn't do it because my consciousness did veto the action. Again: self-preservation.
 
 How can they demand something from me that put me in a worse state than I was ever before? 
 
