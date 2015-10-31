@@ -63,7 +63,7 @@ An dieser Stelle nochmal vielen Dank an meine Freundin Sylvie und alle anderen, 
 Ich werde leben. Die Art, wie man hier Transfrauen "behandelt", hat mich krank gemacht. So krank, dass es eine lange Zeit dauern wird, bis ich mich davon wieder erhole.
 
 
-[This blog post is also available in English]: 2015-10-31-life-essay-en
+[This blog post is also available in English]: /posts/misc/2015-10-31-life-essay-en
 [Lorazepam]: https://de.wikipedia.org/wiki/Lorazepam
 
 
