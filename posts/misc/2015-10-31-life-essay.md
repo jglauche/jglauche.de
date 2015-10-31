@@ -10,7 +10,7 @@ date: 2015-10-31 12:28:00
 
 Ich wollte in diesem Blog eigentlich nichts über Gesundheitsthemen schreiben. Ich mach es jetzt aber trotzdem, da mich ein Thema, was mich jetzt seit einem Monat in mir rumschleppe endlich loswerden muss. Das Thema ist mir so wichtig, dass ich es sowohl in Deutsch als auch in Englisch schreibe.
 
-Ich bin eine Transfrau noch in der "Umstellung". Ich lebe seit Ende letzten Jahres als Frau und nehme seit ein paar Monaten Hormone. Ich versuche jetzt seit August, meine Baartepilation bezahlt zu bekommen, da die noch vorhandenen Baarthaare sowie Körperbehaarung an den Brüsten jeden Tag aufs neue psychisch zu schaffen macht. Die Krankenkasse muss diese Kosten übernehmen, kann aber eine Prüfung durch den Medizinischen Dienst der Krankenversichung (MDK) verlangen. 
+Ich bin eine Transfrau noch in der "Umstellung". Ich lebe seit Ende letzten Jahres als Frau und nehme seit ein paar Monaten Hormone. Ich versuche jetzt seit August, meine Bartepilation bezahlt zu bekommen, da die noch vorhandenen Barthaare sowie Körperbehaarung an den Brüsten jeden Tag aufs neue psychisch zu schaffen macht. Die Krankenkasse muss diese Kosten übernehmen, kann aber eine Prüfung durch den Medizinischen Dienst der Krankenversichung (MDK) verlangen. 
 
 Und genau da liegt der Haken. Der MDK-Arzt war mit dem Schreiben von meiner Psychotherapeutin alleine nicht zufrieden und hat verschiedene Ärztegutachten angefordert, sowie eine eigene, ausführliche Lebensgeschichte von mir.
 
