@@ -9,7 +9,7 @@ date: 2015-10-31 12:28:00
 
 I didn't want to put health topics in my blog originally. But I am doing it now, about a topic that I had to deal with for about a month. And it's so important to me, I'm writing it in both English and German.
 
-I am a transwomen in transition. I am living a full time life of a woman since end of last year and I am taking female hormones for a few month now. Now I am trying to get epilation of facial hair and hair on my chest paid by my insurance, because those areas are a daily source of dysphoria. The health insurance in Germany _has_ to pay for it, but may have the requests checked by the "Medizinischen Dienst der Krankenversichung (MDK)", which are doctors that check requests for validity for the insurance.
+I am a transwoman in transition. I am living a full time life of a woman since end of last year and I am taking female hormones for a few month now. Now I am trying to get epilation of facial hair and hair on my chest paid by my insurance, because those areas are a daily source of dysphoria. The health insurance in Germany _has_ to pay for it, but may have the requests checked by the "Medizinischen Dienst der Krankenversichung (MDK)", which are doctors that check requests for validity for the insurance.
 
 And this institution is giving me problems. The doctor from the MDK wasn't satisfied by the letter of my therapist. He wanted me to write my own, detailed essay about my life.
 
