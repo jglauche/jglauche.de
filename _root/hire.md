@@ -50,7 +50,7 @@ If you are looking for someone who is *more than just an engineer*, someone who 
 
 
 #### Certifications
-- Laser safety training which makes me eligible to work as laser safty officer ("Laserschutzbeauftragte nach §5 OStrV und §6 BGV B2") for machinery within Germany
+- Laser safety training which makes me eligible to work as laser safety officer ("Laserschutzbeauftragte nach §5 OStrV und §6 BGV B2") for machinery within Germany
 
 
 I prefer Open Source / Open Hardware work to closed work and will bill accordingly. 
