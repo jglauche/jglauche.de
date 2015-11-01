@@ -19,7 +19,7 @@ If you are looking for someone who is *more than just an engineer*, someone who 
 
 - Experienced with Postgresql database
 
-- Experienced with PHP, JS, CSS, HTML, Markdown
+- Experienced with PHP, Javascript, CSS, HTML, Markdown
 
 - Experienced with Linux Desktop & Server configuration and troubleshooting 
 
