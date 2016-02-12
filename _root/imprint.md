@@ -13,7 +13,7 @@ Germany
 
 Phone: +49 1578-2831376
 
-E-Mail: webmaster @ joaz . de
+E-Mail: mail @ jglauche . de
 
 IRC: jglauche on freenode or foonetic
 
