@@ -13,12 +13,13 @@ Germany
 
 Phone: +49 1578-2831376
 
-E-Mail: webmaster @ joaz . de
+E-Mail: mail @ jglauche . de
 
 IRC: jglauche on freenode or foonetic
 
 
 #### Please be so kind and contact me by email or IRC before calling me. 
-#### I will not buy your wares but *blacklist your company* if you try to sell me something via phone or email
+
+##### I will not buy your wares but *blacklist your company* if you try to sell me something via phone or email
 
 
