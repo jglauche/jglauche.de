@@ -10,7 +10,7 @@ I [previously wrote] about my [name change process] that I am undergoing. I went
 
 [The ancient law] regarding trans-people to change their name and gender requires the person to "have the urge to live as the other gender [as gender of birth] for longer than 3 years". While one of the psychologists stated that I have it longer, the other one wrote no and took the date where I outed myself, which started in late October 2014. 
 
-Last Tuesday I got a letter from the court, saying that the process will be paused until October 2017. I have to pay almost 1400€ for the psychologist letters and I have the possiblity to as to see a third psychologist, out of my own pocket. 
+Last Tuesday I got a letter from the court, saying that the process will be paused until October 2017. I have to pay almost 1400€ for the two psychologist letters and I have the possiblity to as to see a third psychologist, out of my own pocket. 
 
 ### Health impacts
 
